@@ -1,3 +1,5 @@
-![the silly](https://github.com/user-attachments/assets/90cf360b-ce38-4691-8554-bbc0c718f6ff)
+#### <p align="center"> markus why
 
-《 • [strawpage](https://kolchekks.straw.page) • [patreon](https://www.patreon.com/kolcheks/about) • [atabook](https://kolcheks.atabook.org) • [pronouns](https://en.pronouns.page/@kolchek) • 》
+  ![the silly](https://pbs.twimg.com/media/FThwL-KaMAEawhJ?format=jpg&name=large)
+
+## <p align="center"> ART BY LITTLEBUNNIBOO ON TWT
