@@ -4,5 +4,6 @@
 
 ## <p align="center">![JPEG image](https://github.com/user-attachments/assets/669d91cc-fdec-4ce0-9751-c64203ca65ea)
 
+#### <p align="center"> to whoever sent that weird strawpage ama criticizing me for having "don't flirt with me" in my bio you're weird
 
 
