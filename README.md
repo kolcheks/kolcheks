@@ -1,7 +1,7 @@
-## <p align="center">![](https://komarev.com/ghpvc/?username=kolcheks&label=★+i+see+you..++&color=9F2B68)
+ ## <p align="center">![](https://komarev.com/ghpvc/?username=kolcheks&label=★+why+hey+there!++&color=9F2B68)
 
-#### <p align="center"> i enjoy jax and pom as pals
+#### <p align="center"> scout is worlds funniest dude
 
-## <p align="center"><img width="1488" height="1016" alt="image" src="https://github.com/user-attachments/assets/f51a33bb-14f8-44e5-8421-9702984f531c" />
+## <p align="center"><img width="1199" height="1205" alt="image" src="https://github.com/user-attachments/assets/96b09695-538e-4a98-b6d5-c2f0a02cd5b0" />
 
 
