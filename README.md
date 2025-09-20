@@ -3,6 +3,7 @@
 #### <p align="center"> sassy siren apocalypse
 
 
-## <p align="center"><img width="1080" height="1080" alt="image" src="https://github.com/user-attachments/assets/fecde38f-af6e-433f-9851-17f1ab3160e7" />
+## <p align="center"><img width="2048" height="2048" alt="image" src="https://github.com/user-attachments/assets/3ef62d63-b7c6-4bc7-8f1b-46af00f9412a" />
+
 
 
