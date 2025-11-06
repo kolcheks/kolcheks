@@ -1,7 +1,7 @@
  ## <p align="center">![](https://komarev.com/ghpvc/?username=kolcheks&label=★+Cabingoers!++&color=3b3636)
 <p align="center"> <img width="581" height="137" alt="image" src="https://github.com/user-attachments/assets/e043ac10-04e6-4ab1-9045-8bcf51b31960" />
 
- _<p align="center"> call me sunny!_
+ _<p align="center"> you can call me sunny, kol, kolcheks or vex!!_
 
 _<p align="center">  i love um.. slay the princess and dispatch!_
 
