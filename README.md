@@ -3,7 +3,7 @@
 
  _<p align="center"> you can call me sunny, kol, kolcheks or vex!!_
 
-_<p align="center">  i love um.. slay the princess and dispatch!_
+_<p align="center">  i love um.. slay the princess!_
 
 _<p align="center"> sign my ata! i love reading messages!_
 
