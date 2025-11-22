@@ -7,7 +7,7 @@
 
 _<p align="center">  i love um.. slay the princess!_
 
-_<p align="center"> not sure what i did but ok!_
+_<p align="center"> never even shittalked you but pop off i guess_
 
 _<p align="center"> sign my ata! i love reading messages!_
 
