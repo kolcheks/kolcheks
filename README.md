@@ -9,6 +9,8 @@ _<p align="center">  i love um.. slay the princess!_
 
 _<p align="center"> sign my ata! i love reading messages!_
 
+_<p align="center"> if you're friends with markusheart, please dont interact with me ^^_
+
 _<p align="center"> [Atabook!](https://kolcheks.atabook.org) . [Carrd!](https://kolchek.carrd.co/#) . [Strawpage!](https://blackshoresz.straw.page)_
   
 ## <p align="center"><img width="1920" height="900" alt="Screenshot (130)" src="https://github.com/user-attachments/assets/378b696c-aa8e-4d8c-a80f-e21c29e437d4" />
