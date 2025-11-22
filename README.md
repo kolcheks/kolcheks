@@ -7,7 +7,7 @@
 
 _<p align="center">  i love um.. slay the princess!_
 
-_<p align="center"> i didn't even do anything btw!_
+_<p align="center"> not sure what i did but ok!_
 
 _<p align="center"> sign my ata! i love reading messages!_
 
