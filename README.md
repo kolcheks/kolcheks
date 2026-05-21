@@ -7,7 +7,7 @@
 
 _<p align="center">  i love um.. slay the princess!_
 
-_<p align="center"> ur free to cud UNLESS i'm with friends! ask first when i'm with pals pls!
+_<p align="center"> ur free to cud UNLESS i'm with friends! ask first when i'm with pals pls!_
 
 _<p align="center"> dni if you like tcoaal its weird thx xx_
 
